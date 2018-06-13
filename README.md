@@ -2,4 +2,4 @@
 Test repository
 
 
-Breakfast sandwiches, cathedral skies, moonbeams, and Dragon music are some of my inspirations.
+Breakfast sandwiches, cathedral skies, moonbeams, and dragon music are some of my inspirations.
